@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ChillociRaptor
+- 👀 I’m interested in ... Gaming, Art, Psychology, Philosophy, The Brain, Space, all sorts really!
+- 🌱 I’m currently learning ... Game Art at Media Design School here in Auckland. That means learning design principles, art fundamentals, 3D modelling, coding, and much much more!
+- 💞️ I’m looking to collaborate on ... I don't entirely know, I'm just here for the future :D
+- 📫 How to reach me ... aaslijp@gmail.com 
